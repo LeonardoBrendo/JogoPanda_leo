@@ -1,1 +1,0 @@
-# JogoPanda_7FDOts
